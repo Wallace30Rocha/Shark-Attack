@@ -14,7 +14,7 @@ Another relevant information is about the size of the surfboards. Longboards for
 Younger surfers are smaller than adults and they ride smaller surfboards making them a easier pray for sharks. Although the number of adult surfers are larger than the number of youth surfers, the logic would put a smaller being as the primary target for sharks.  
 
 2. Hypothesis:   
-**EVEN IF WE ADD THE NUMBER OF ELDERLY MAN SURFERS VICTIMS (62+ YEARS) AND THE NUMBER OF WOMAN SURFERS VICTIMS OF ALL AGES, THE RESULT STILL GOING TO BE SMALLER THAN THE NUMBER OF VICTIMS UP TO 19 YEARS OLD.**
+**EVEN IF WE ADD THE NUMBER OF ELDERLY MAN SURFERS VICTIMS (62+ YEARS) AND THE NUMBER OF WOMAN SURFERS VICTIMS OF ALL AGES, THE RESULT STILL GOING TO BE SMALLER THAN THE NUMBER OF VICTIMS UP TO 19 YEARS OLD.**  
 2.1. When surfers paddle out in famous places such as Hawaii and Australia, one would notice that elderly man and woman of all ages usually ride Funboards and Longboards (7 - 9ft+).  
 Considering the scientific theory mentioned on the first hypothesis, one could assume that sharks would prefer to attack surfers whose are riding shorter boards rather than bigger and longer surfboards. Smaller prey = easier prey. 
 Therefore surfers riding longer boards are less likely to be attacked by sharks.
